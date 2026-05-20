@@ -1,5 +1,4 @@
-<p align="center">𑣲 - Basil/Till. I am the host! :D He/him only please.
-
+<p align="center">𑣲 - Popee. I am the host! :D I do not care what pronouns you use, okay? Okay
 <p align="center">⤷       17 bodily & trans(female to male.)
 <p align="center">⟢ • This Github is strictly for PonyTown, so if you've seen me around, hello!!
 <p align="center">📌          Please PLEASE ask who is fronting unless " SYS " is in the name. :)
